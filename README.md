@@ -21,7 +21,7 @@ Es por esto que Log4j da una solución por medio de:
            -	Phishing.
            
  ### Titk tok. ###
- <a href="https://vm.tiktok.com/ZM83DCmev/">Link a tik tok</a>
+ <a href="https://vm.tiktok.com/ZM83UQJ7y/">Link a tik tok</a>
  
  ### Diagrama. ###
  
